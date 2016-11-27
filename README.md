@@ -1,2 +1,0 @@
-# Fajku
-www.pornhub.com
